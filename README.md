@@ -1,1 +1,0 @@
-# SigmaSkibidi244.github.io
